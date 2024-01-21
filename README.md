@@ -17,4 +17,6 @@
 
 
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎![ezgif com-gif-maker_89](https://github.com/DoppoKannonzaka/kunizai/assets/122230413/a2e97438-5ca0-4354-9106-17a0a1baa29e) ![ezgif com-gif-maker_89](https://github.com/DoppoKannonzaka/kunizai/assets/122230413/a2e97438-5ca0-4354-9106-17a0a1baa29e)
+![ATp8Wbzs7sU1AAAAAElFTkSuQmCC](https://github.com/DoppoKannonzaka/DoppoKannonzaka/assets/122230413/ef80cdc1-5973-4cf3-adad-477270f21350)
+
+
